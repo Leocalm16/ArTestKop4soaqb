@@ -1,1 +1,0 @@
-# ArTestKop4soaqb
